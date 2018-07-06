@@ -14,7 +14,7 @@
 Looking for a good song to jam out to? Check out what other people's favorite songs are. Cool thing is, its anonymous!
 
 
-![alt tag](https://imgur.com/9AZO4P2)
+![alt tag](https://i.imgur.com/9AZO4P2.png)
 
 ## How It's Made:
 
